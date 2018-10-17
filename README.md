@@ -1,1 +1,0 @@
-# The7-24AktifBOT
